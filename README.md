@@ -9,7 +9,7 @@
 - ⚽ Big Arsenal Guy
 - 💢 Unfortunately I contracted a terminal case of League of Legends in middle school and thus it takes up a decent portion of my life to this day
 - 🖥️ Aside from off/on toxic relationship with above, variety pc gamer // I 100% Hades btw 🕶️
-- 👨‍🦽 Cerebral Palsy aka King Stall enjoyer, aka Parking Miester lol
+- 👨‍🦽 Cerebral Palsy aka King Stall enjoyer, aka Parking Meister lol
 - 😊 yes I did use the default template I'm new here
   
 
