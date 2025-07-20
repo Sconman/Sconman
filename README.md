@@ -1,12 +1,11 @@
 - 👋 Hi, I’m @Sconman
 - 🏫GMU CS
-- 👀 I’m interested in back-end development and slowly descending the rabbit hole of low-level systems and computer architecture, I want to understand how computers work from the changing currents of transistors to Brainrot Youtube Shorts
 - 🌱 I’m currently learning C and am really enjoying learning how to code in lower level languages but I also am procient in Java and Python with many more to come
 - 💞️ I mainly just post random stuff I do on the side because I can't post school-related code but I'm trying to do more side projects!
 - 🙏 Looking for internships and/or employment plz lol!!!
 - 📫 How to reach me: cdelane@gmu.edu
-- 😄 Pronouns: He/Him 
-- ⚽ Big Arsenal Guy
+- 😄 Pronouns: She/They
+- ⚽ Big Arsenal Gal
 - 💢 Unfortunately I contracted a terminal case of League of Legends in middle school and thus it takes up a decent portion of my life to this day
 - 🖥️ Aside from off/on toxic relationship with above, variety pc gamer // I 100% Hades btw 🕶️
 - 👨‍🦽 Cerebral Palsy aka King Stall enjoyer, aka Parking Meister lol
