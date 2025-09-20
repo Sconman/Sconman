@@ -4,8 +4,8 @@
 - 💞️ I mainly just post random stuff I do on the side because I can't post school-related code but I'm trying to do more side projects!
 - 🙏 Looking for internships and/or employment plz lol!!!
 - 📫 How to reach me: cdelane@gmu.edu
-- 😄 Pronouns: She/They
-- ⚽ Big Arsenal Gal
+- 😄 Pronouns: He/They
+- ⚽ Big Arsenal fan
 - 💢 Unfortunately I contracted a terminal case of League of Legends in middle school and thus it takes up a decent portion of my life to this day
 - 🖥️ Aside from off/on toxic relationship with above, variety pc gamer // I 100% Hades btw 🕶️
 - 👨‍🦽 Cerebral Palsy aka King Stall enjoyer, aka Parking Meister lol
